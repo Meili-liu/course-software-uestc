@@ -51,3 +51,5 @@
 
 + 如有侵权，我会及时处理：<a target="_blank" href="http://mail.qq.com/cgi-bin/qm_share?t=qm_mailme&email=ADQxMzU5NzkxNEBxcS5jb20" style="text-decoration:none;"><img src="http://rescdn.qqmail.com/zh_CN/htmledition/images/function/qm_open/ico_mailme_01.png"/></a>
 
+---
+<a href="https://info.flagcounter.com/Xc8w"><img src="https://s11.flagcounter.com/count2/Xc8w/bg_FFFFFF/txt_000000/border_CCCCCC/columns_2/maxflags_10/viewers_0/labels_0/pageviews_0/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
